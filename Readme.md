@@ -5,6 +5,7 @@ This recipe is available on: http://www.inspiredtaste.net/25753/carrot-cake-reci
 ## Ingredients
 
 *For the cake:*
+
 1. 2 cups (260 grams) all-purpose flour
 2. 2 teaspoons baking soda
 3. 1 teaspoon kosher salt
@@ -19,6 +20,7 @@ This recipe is available on: http://www.inspiredtaste.net/25753/carrot-cake-reci
 12. 1/2 cup (65 grams) raisins
 
 *For the frosting:*
+
 13. 8 ounces (225 grams) cream cheese, at room temperature
 14. 1 1/4 cups (140 grams) powdered sugar
 15. 1/3 cup (80 ml) heavy whipping cream
